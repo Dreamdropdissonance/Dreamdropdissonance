@@ -1,5 +1,6 @@
 <div align="center">
-![meow](https://files.catbox.moe/k1fv8s.png)
+<img width="2144" height="1309" alt="image" src="https://github.com/user-attachments/assets/2880d2cc-8ae1-4f32-81a9-47cb086671f4" />
+
  
 Hello!! My name is Ven!! [He / It / PK / Pup / She + Xenos]!!
 
