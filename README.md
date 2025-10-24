@@ -5,9 +5,9 @@
  
 ᛝ Hello!! My name is __Ven!!__ [_He / It / PK / Pup / She + Xenos_]!! ᛝ
 
-⋮ I'm <u>17</u> and a Senior in highschool! ⋮ I'm a _writer, cosplayer,_ and _artist_,, ⋮ I really like __One Piece, Earthbound, PJSK, Pokemon, HSR,__ and like _TOOONNNSS_ more!! ⋮ I am also a <u>yumeshipper n' fictionkin!!</u> ⋮
+⋮ I'm <ins>17</ins> and a Senior in highschool! ⋮ I'm a _writer, cosplayer,_ and _artist_,, ⋮ I really like __One Piece, Earthbound, PJSK, Pokemon, HSR,__ and like _TOOONNNSS_ more!! ⋮ I am also a <ins>yumeshipper n' fictionkin!!</ins> ⋮
 
-⟡ I'm usually <u>afk</u> or <u>offtab</u> on Ponytown, and I try to interact with people when I can , but I can be socially awkward. ⟡ If I dont respond to you, _please don't take it personally_!! ⟡ I'm bad at knowing how to respond to people, and even then, I usually don't see when people try to talk to me. ⟡
+⟡ I'm usually <ins>afk</ins> or <ins>offtab</ins> on Ponytown, and I try to interact with people when I can , but I can be socially awkward. ⟡ If I dont respond to you, _please don't take it personally_!! ⟡ I'm bad at knowing how to respond to people, and even then, I usually don't see when people try to talk to me. ⟡
 
 ⌗ If you want to see my extended interests, my byi, and my dni, please go look at my <u>strawpage!!</u> ⌗ I will state here that I am __anti-censorship__ and my ideals may coinside with those of the __'proshipping' movement__. ⌗ If that makes you uncomfortable, _please don't make yourself interact with me!!_ ⌗
 
