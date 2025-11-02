@@ -12,4 +12,7 @@
 ⌗ If you want to see my extended interests, my byi, and my dni, please go look at my <ins>Rentry!!</ins> ⌗ I will state here that I am __anti-censorship__ and my ideals may coinside with those of the __'proshipping' movement__. ⌗ If that makes you uncomfortable, _please don't make yourself interact with me!!_ ⌗
 
 ⌞ I swear I'm super awesome and not scary at all!! ⌝
+
+![](https://komarev.com/ghpvc/?username=Dreamdropdissonance&color=eb346e)
+
 </div>
