@@ -4,7 +4,7 @@
 
 𓏵
  
-ᛝ Hello!! My name is __Ven!!__ [_He / It / PK / Pup / She + Xenos_]!! ᛝ
+ᛝ Hello!! My name is __Ven!! / Nyasha__ [_He / It / PK / Pup / She + Xenos_]!! ᛝ
 
 ⋮ I'm <ins>18</ins> and a Senior in highschool! ⋮ I'm a _writer, cosplayer,_ and _artist_,, ⋮ I really like __One Piece, Earthbound, PJSK, Pokemon, HSR,__ and like _TOOONNNSS_ more!! ⋮ I am also a <ins>yumeshipper</ins> n' <ins>fictionkin!!</ins> ⋮
 
