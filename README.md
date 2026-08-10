@@ -6,7 +6,7 @@
  
 ᛝ Hello!! My name is __Nyasha!!__ [_She / It / He / PK / Pup / + Xenos_]!! ᛝ
 
-⋮ I'm <ins>18</ins> and a Freshman in College! ⋮ I'm a _writer, cosplayer,_ and _artist_,, ⋮ I really like __One Piece, Earthbound, PJSK, Pokemon, HSR,__ and like _TOOONNNSS_ more!! ⋮ I am also a <ins>yumeshipper</ins> n' <ins>fictionkin!!</ins> ⋮
+⋮ I'm <ins>18</ins> and a Freshman in College! ⋮ I'm a _writer, cosplayer,_ and _artist_,, ⋮ I really like __Hetalia, One Piece, Creepypasta, HSR, PJSK, Pokemon,__ and like _TOOONNNSS_ more!! ⋮ I am also a <ins>yumeshipper</ins> n' <ins>fictionkin!!</ins> ⋮
 
 ⟡ I'm usually <ins>afk</ins> or <ins>offtab</ins> on Ponytown, and I try to interact with people when I can , but I can be socially awkward. ⟡ If I dont respond to you, _please don't take it personally_!! ⟡ I'm bad at knowing how to respond to people, and even then, _I usually don't see when people try to talk to me._ ⟡
 
