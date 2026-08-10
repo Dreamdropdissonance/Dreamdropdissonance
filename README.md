@@ -1,5 +1,6 @@
 <div align="center">
-<img width="643" height="402" alt="image" src="https://files.catbox.moe/6ghcad.png" />
+<img <img width="329" height="257" alt="FUCKLDHWKA" src="https://github.com/user-attachments/assets/60aebd2d-e302-4752-9b4a-e2ec79be07e2" />
+
 
 
 𓏵
